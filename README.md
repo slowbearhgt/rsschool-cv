@@ -1,1 +1,0 @@
-https://slowbearhgt.github.io/rsschool-cv/cv
